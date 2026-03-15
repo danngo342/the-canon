@@ -1,0 +1,1 @@
+Record Zero begins where the Canon first opened its eyes.

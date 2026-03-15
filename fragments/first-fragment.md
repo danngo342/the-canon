@@ -1,0 +1,1 @@
+A fragment is a moment that refused to vanish.
